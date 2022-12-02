@@ -1,1 +1,0 @@
-# jakubwiechniak.github.io
